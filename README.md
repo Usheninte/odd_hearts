@@ -253,7 +253,7 @@ that crowned Kilimanjaro in snow
 man not typical     
 man not like dem others     
 man be too mystical     
-man speaks in numbers, to him brothers     
+man speak in numbers, to him brothers     
 
 man be da Lion     
 bwarn outta da Tribe of Africa     
@@ -414,7 +414,7 @@ beginner level dev tag
 now i dust off    
 
 **_life is just a buzz_**    
-**_of neutrons in the brain_**     
+**_of neurons in the brain_**     
 
 the magic of the internet    
 and of youth    
@@ -422,7 +422,7 @@ and of youth
 could drive one insane    
 
 **_life is just a buzz_**    
-**_of neutrons in the brain_**    
+**_of neurons in the brain_**    
 
 [=POETRIQUE=](#)       
 [&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       

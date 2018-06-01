@@ -11,13 +11,13 @@
 
  with picture poetry by     
 
-[ Mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
+[ MAMBO ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
  ...     
 
  wrtitten in code by     
 
-[ Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>      
+[ PIPE ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>      
 
 - - -
 - - -
@@ -32,7 +32,7 @@ for if love is madness
 i shall still have a taste      
 
 [=POETRIQUE=](#)      
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -53,7 +53,7 @@ for you ... i would
 learn once more to pray     
 
 [=POETRIQUE=](#)      
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -72,11 +72,12 @@ just for a drop of truth
 to quench my desert thirst      
 
 [=POETRIQUE=](#)      
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
 ![01=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,r_0,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0001.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
@@ -98,7 +99,7 @@ our love in truth, did not last
 like anything in youth         
 
 [=POETRIQUE=](#)      
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -119,7 +120,7 @@ a piece of holy madness
 **_is my soul, as it beats unique_**       
 
 [=POETRIQUE=](#)      
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -134,11 +135,12 @@ however sweet once
 off your mind, let it bounce.       
 
 [=POETRIQUE=](#)      
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
 ![02=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0002.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
@@ -155,7 +157,7 @@ when all i had to do was speak
 and the very ground would quake     
 
 [=POETRIQUE=](#)      
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -176,7 +178,7 @@ and then find hard  it to merge
 with souls that just want to love     
 
 [=POETRIQUE=](#)      
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -195,11 +197,12 @@ my nature is really solemn
 i am more a fighter     
 
 [=POETRIQUE=](#)      
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
 ![03=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0003.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
@@ -216,7 +219,7 @@ from which we spring
 every *nygga* with has a heart of gold     
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -238,7 +241,7 @@ we whispered proverbs
 that crowned Kilimanjaro in snow     
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -253,15 +256,17 @@ man be the fire-breathing
 Lion of the Tribe of Africa     
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - - 
 
 ![04=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0004.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
 ![05=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_600/v1527883485/htmlpoems/mambo/odd-hearts/mambo_WA0005.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
@@ -285,11 +290,12 @@ rise up wiser and stronger
 he who was once bronze, sometimes     
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
 ![06=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883484/htmlpoems/mambo/odd-hearts/mambo_WA0006.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
@@ -309,7 +315,7 @@ beating atop mine
 _play with me_     
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -320,11 +326,12 @@ data, cash, power, *pvssy*
 and peace of mind too     
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
 ![07=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0007.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
@@ -343,15 +350,17 @@ i will not simply swallow
 what is not for me     
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
 ![08=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883487/htmlpoems/mambo/odd-hearts/mambo_WA0008.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
 ![10=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883486/htmlpoems/mambo/odd-hearts/mambo_WA0010.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
@@ -359,16 +368,16 @@ what is not for me
 
 trust you will be great    
 you will, if you will be    
-*_heck:_*  what does a    
+_*heck*_:  what does a    
 sinner know of fate    
 
 he knows he will taste success    
 first quite boldy    
 then as long as time goes on    
-*_it is certain_*     
+_*it is certain*_     
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -385,7 +394,7 @@ for they alone
 have the power to continue to dream     
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
@@ -395,23 +404,24 @@ just got linux
 beginner level dev tag    
 now i dust off    
 
-_life is just a buzz_    
-_of neutrons in the brain_    
+_*life is just a buzz*_    
+_*of neutrons in the brain*_    
 
 the magic of the internet    
 and of youth    
 ... if not shared with another    
 could drive one insane    
 
-_life is just a buzz_    
-_of neutrons in the brain_    
+_*life is just a buzz*_    
+_*of neutrons in the brain*_    
 
 [=POETRIQUE=](#)       
-[&copy; Pipe ](http://instagram.com/poetrique)       
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
 
 - - -
 
 ![09=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883486/htmlpoems/mambo/odd-hearts/mambo_WA0010.jpg)     
+[&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 - - -
@@ -420,8 +430,8 @@ _of neutrons in the brain_
 
  thanks for reading     
 
- from [PIPE](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>      
+ from [ PIPE ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>      
 
- and [MAMBO](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
+ and [ MAMBO ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
  have a truly awesome summer !!!     

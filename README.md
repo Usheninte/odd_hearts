@@ -1,3 +1,7 @@
+<head>
+    <link href="https://afeld.github.io/emoji-css/emoji.css" rel="stylesheet">
+</head>
+
 
 ![Odd-Hearts_COVER](http://res.cloudinary.com/poetrique/image/upload/q_100/v1527885711/htmlpoems/OddHearts.jpg)
 

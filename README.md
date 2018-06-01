@@ -41,9 +41,9 @@ i shall still have a taste
 i see reality       
 other things:       
 
-> religion      
-> ecstasy       
-> fantasy       
+> **religion**      
+> **ecstasy**       
+> **fantasy**       
 
 i am _not perfect_      
 in any way,     
@@ -77,6 +77,7 @@ to quench my desert thirst
 - - -
 
 ![01=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,r_0,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0001.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
@@ -140,6 +141,7 @@ off your mind, let it bounce.
 - - -
 
 ![02=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0002.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
@@ -202,6 +204,7 @@ i am more a fighter
 - - -
 
 ![03=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0003.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
@@ -216,7 +219,7 @@ we come from night-time gods
 our melanin is a product     
 of the ancient stock     
 from which we spring     
-every *nygga* with has a heart of gold     
+every **nygga** has a heart of gold     
 
 [=POETRIQUE=](#)       
 [&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
@@ -261,11 +264,13 @@ Lion of the Tribe of Africa
 - - - 
 
 ![04=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0004.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
 ![05=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_600/v1527883485/htmlpoems/mambo/odd-hearts/mambo_WA0005.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
@@ -295,6 +300,7 @@ he who was once bronze, sometimes
 - - -
 
 ![06=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883484/htmlpoems/mambo/odd-hearts/mambo_WA0006.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
@@ -322,7 +328,7 @@ _play with me_
 ## last week as a teen
 
 what would i love now     
-data, cash, power, *pvssy*     
+data, cash, power, **pvssy**     
 and peace of mind too     
 
 [=POETRIQUE=](#)       
@@ -331,6 +337,7 @@ and peace of mind too
 - - -
 
 ![07=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883483/htmlpoems/mambo/odd-hearts/mambo_WA0007.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
@@ -355,11 +362,13 @@ what is not for me
 - - -
 
 ![08=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883487/htmlpoems/mambo/odd-hearts/mambo_WA0008.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
 
 ![10=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883486/htmlpoems/mambo/odd-hearts/mambo_WA0010.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
@@ -368,13 +377,13 @@ what is not for me
 
 trust you will be great    
 you will, if you will be    
-_*heck*_:  what does a    
+**_heck_**:  what does a    
 sinner know of fate    
 
 he knows he will taste success    
 first quite boldy    
 then as long as time goes on    
-_*it is certain*_     
+**_it is certain_**     
 
 [=POETRIQUE=](#)       
 [&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
@@ -404,16 +413,16 @@ just got linux
 beginner level dev tag    
 now i dust off    
 
-_*life is just a buzz*_    
-_*of neutrons in the brain*_    
+**_life is just a buzz_**    
+**_of neutrons in the brain_**     
 
 the magic of the internet    
 and of youth    
 ... if not shared with another    
 could drive one insane    
 
-_*life is just a buzz*_    
-_*of neutrons in the brain*_    
+**_life is just a buzz_**    
+**_of neutrons in the brain_**    
 
 [=POETRIQUE=](#)       
 [&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
@@ -421,6 +430,7 @@ _*of neutrons in the brain*_
 - - -
 
 ![09=mambo](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_500/v1527883486/htmlpoems/mambo/odd-hearts/mambo_WA0010.jpg)     
+[=POETRIQUE=](#)      
 [&copy; mambo ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
 - - -
@@ -435,3 +445,7 @@ _*of neutrons in the brain*_
  and [ MAMBO ](http://instagram.com/manlikemambo) <i class="em em-candy"></i>     
 
  have a truly awesome summer !!!     
+
+- - -
+
+ALL RIGHTS RESERVED. Published _June 8th_ *2018*

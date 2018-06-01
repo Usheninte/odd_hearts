@@ -39,7 +39,7 @@ i shall still have a taste
 ## in your eyes
 
 i see reality       
-other things:       
+and other things:       
 
 > **religion**      
 > **ecstasy**       
@@ -87,7 +87,7 @@ to quench my desert thirst
 i loved strong straight     
 i did not faint         
 i did all right         
-yet stil ... **fvck fate**      
+yet still ... **fvck fate**      
 
 i was a fool        
 and glad to be, so      
@@ -255,8 +255,8 @@ man not like dem others
 man be too mystical     
 man speaks in numbers, to him brothers     
 
-man be the fire-breathing     
-Lion of the Tribe of Africa     
+man be da Lion     
+bwarn outta da Tribe of Africa     
 
 [=POETRIQUE=](#)       
 [&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
@@ -350,7 +350,7 @@ i do not chase
 i can not follow    
 
 i am a king    
-queens mate with kings    
+_queens mate with kings_    
 i tell life what i require    
 unlike the others,    
 i will not simply swallow    
@@ -400,7 +400,7 @@ they hold a value
 far larger, than a diamond river    
 a platinum waterfall, a silver ocean    
 for they alone    
-have the power to continue to dream     
+have the power to continue to **dream**     
 
 [=POETRIQUE=](#)       
 [&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i>       
@@ -448,4 +448,4 @@ could drive one insane
 
 - - -
 
-ALL RIGHTS RESERVED. Published _June 8th_ *2018*
+##### ALL RIGHTS RESERVED. Published _June 8th_ **2018**
